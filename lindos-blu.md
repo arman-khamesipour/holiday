@@ -1,0 +1,1 @@
+https://www.destination2.co.uk/hotels/lindos-blu-luxury-hotel-and-suites

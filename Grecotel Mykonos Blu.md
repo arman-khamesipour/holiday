@@ -1,0 +1,1 @@
+https://www.destination2.co.uk/hotels/grecotel-mykonos-blu
